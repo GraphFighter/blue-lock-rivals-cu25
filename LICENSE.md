@@ -1,4 +1,4 @@
-
+elite math for brainrots Scripts is the best math for brainrots Script, featuring undetectable and auto-collect. Safe and powerful for all your needs.
 
 
 
